@@ -1,4 +1,4 @@
-Welcome to Volume 05, Issue 09, 2024 of the United International Journal for Research & Technology (UIJRT). This issue presents a collection of research papers covering a range of topics. Below is a list of all published papers for this issue.
+Volume 05, Issue 09, 2024 of the United International Journal for Research & Technology (UIJRT). This issue presents a collection of research papers covering a range of topics. Below is a list of all published papers for this issue.
 
 ## Published Papers
 
